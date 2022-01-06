@@ -1,0 +1,12 @@
+vccvc
+ccbvv
+vvnjkvsdj
+vnvbvjkv
+vnfdv~b~vj 
+vdmknkvkvn
+kfdvvnpo
+vdvm
+fdv~mv
+vmvdv
+v~´vmf
+vfmvçkl
